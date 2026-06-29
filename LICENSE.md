@@ -1,4 +1,4 @@
-# 
+# Nativo CorelDRAW fluxo de trabalho para Mac OS | Inteligente CorelDRAW fluxo de trabalho para PC Windows. Com efeitos ao vivo e operações booleanas — otimizado para máximo desempenho em cada plataforma.
 
 
 
